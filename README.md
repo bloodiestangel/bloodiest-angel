@@ -1,5 +1,2 @@
 # About me.
-working at roblox remotely
-19 F
-au
-love volleyball and soccer
+Hi, Most people know me by my alias "Nezur", I've since ditched that and have tried to switch to other names like "holytrinity", "bloodiestangel", and "dumbassinheaven" if you couldn't tell via my discord connections. The reason why i've ditched the name "Nezur". (I've had it for about two years now). Because after some problems going on in the staff team that involved spreading lies about one another, I was the main target because I was the outlier out of every staff member. Most staff come from another cheat called "Evon", Evon is a Roblox executor that has been around for a pretty long time and has been exposed as a bitcoin miner. The staff that don't come from Evon include, LuaLucas (Owner of Nezur), and me, Nezur. You might also be wondering how I've gotten the name. Well, its a long story and I don't want to go too deep into it as it isn't needed. If you want to add my new account on Discord, the username is "bloodiestangel" case sensitive. also nezur is actually my bf so ask me abt 
